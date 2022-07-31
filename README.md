@@ -1,1 +1,1 @@
-# kolamok.github.io
+# kolak
